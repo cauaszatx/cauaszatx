@@ -2,7 +2,7 @@
 Infelizmente estarei cursando esse curso neste semestre!
 
 - Cruzeiro 💙
-- Basketball 🏀💚
+- Basketball 🏀
 
 **Grow the Legend**
 
