@@ -1,8 +1,12 @@
 ## CauaSZ.ATX Profile
-Infelizmente estarei cursando esse curso neste semestre!
 
-- Cruzeiro 💙
-- Basketball 🏀
+- Olá, meu nome é Cauã
+- Sou estudante do 1A, na escola Leonardo Vilas Boas na cidade de Osasco/SP.
+- Estou aprendendo a usar Alura e outras plataformas.
+- Nas minhas horas vagas gosto de assistir NBA e ouvir Twenty One Pilots.
+- Meu sonho é ver um jogo no Mineirão.
+- 00001145435555sp@al.educacao.sp.gov.br
+- @cauasz.atx
 
 **Grow the Legend**
 
